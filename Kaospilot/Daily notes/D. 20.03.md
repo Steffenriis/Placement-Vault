@@ -1,0 +1,2 @@
+I dag har været en god dag, hvor jeg har taget det stille og roligt. Klokken er 14 og jeg holder fri nu, hvilket jeg har det super godt med! 
+Jeg har lavet en plan for hvad der skal ske de næste 5 uger, hvilket giver mig ret meget ro i hovedet. Og så er planen lavet fysisk, hvilket både var super dejlig tat arbejde i, men også super dejligt i forhold til overblik. Det var som om at jeg bare ikke kunne formår at få overblik over det når jeg kun var på computeren. Tak for i dag og godnat. 
